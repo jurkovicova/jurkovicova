@@ -1,4 +1,5 @@
-❤️
+# Hi, I'm Michaela!
+☀️
 <!--
 - 👋 Hi, I’m @jurkovicova
 - 👀 I’m interested in ...
